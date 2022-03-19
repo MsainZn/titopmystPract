@@ -1,6 +1,6 @@
 راز تی‌تاپ
 ============
-
+set sail to sea but pulled ofcoarse by the light of golden treasure, how could he notice new dawns light would change his life forever how can i be lost if i got no where to go search the seas of gold how come it got so cold how can i be lost in the rembrance i relive and how can i blame you when its me i cant forgive :)
 
 
 
